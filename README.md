@@ -1,1 +1,2 @@
-DINKUUU
+*DINKUUU*
+!amku
