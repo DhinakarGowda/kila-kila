@@ -1,2 +1,2 @@
+# amku dumuku amal dumal
 *DINKUUU*
-!amku
